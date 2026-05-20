@@ -2,7 +2,7 @@
 
 <div align="center">
 
-" baby, join me in death "
+" and i don't blame you if you want to bury me in your memory, im not the person i ought to be "
 
 </div>
 
