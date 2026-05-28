@@ -1,8 +1,10 @@
-![1000075465](https://github.com/user-attachments/assets/8198ede0-87d1-410b-bbbb-ee0f6703de25)
+<img width="1536" height="1137" alt="1000076311" src="https://github.com/user-attachments/assets/f76b03cd-addf-41c3-903a-e83ff82e46dd" />
+
+
 
 <div align="center">
 
-" and i don't blame you if you want to bury me in your memory, im not the person i ought to be "
+" bang bang bang! "
 
 </div>
 
