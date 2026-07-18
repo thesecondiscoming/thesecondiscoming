@@ -4,7 +4,7 @@
 
 <div align="center">
 
-" bang bang bang! "
+" bigmouth strikes again! "
 
 </div>
 
